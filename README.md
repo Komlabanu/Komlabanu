@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on eating toothpaste.
 - 📫 How to reach me Need a cup of Coffee.
 - 😄 Pronouns:He,She,Themself,Ourself.
-- ⚡ Fun fact:Roket Science,Medical science, Athleties,Bike riding and walk,Social media.
+- ⚡ Fun fact:Roket Science,Medical science, Athleties,Bike riding and walk,Social media,sex.
 - ❤️ I love Myself,Themself,Ourself.
 <!---My Love.
 Komlabanu/Komlabanu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
